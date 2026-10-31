@@ -1,0 +1,1 @@
+Claude Code is about to cook
